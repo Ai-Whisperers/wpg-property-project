@@ -42,3 +42,18 @@ From Google Earth (2025-02-23 imagery):
 - **Past:** Property exchange with Gerold completed
 - **Present:** Negotiation window open
 - **Future risk:** Grace builds → window closes
+
+## Update 2025-02-07 02:42 UTC
+
+| Fact | Source | Date |
+|------|--------|------|
+| Football player's team: Club Olimpia (confirmed) | John | 2025-02-07 |
+| Carlos = "hand in the house", in contact with goalkeeper | John | 2025-02-07 |
+| Carlos handling initial negotiations | John | 2025-02-07 |
+| Garden Grooves mark is ON the neighbor's property | John | 2025-02-07 |
+| Compound covered by trees | John | 2025-02-07 |
+| One house ≈ 12m x 30m | John | 2025-02-07 |
+| John's house = combined duplex, upper floor connected, office downstairs in one unit | John | 2025-02-07 |
+
+### Key Contact
+- **Carlos** - John's handyman/house helper, primary contact with the goalkeeper
