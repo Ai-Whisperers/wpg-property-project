@@ -89,3 +89,10 @@ This is a **sunk cost fallacy** situation. They're holding onto something they'l
 > "They could get so much better, so much better located anywhere else."
 
 15 years ago = desolate. Now = built up and valuable. Their quincho land has appreciated, but they're not using it to its potential. They could trade UP.
+
+## Update 2025-02-07 02:55 UTC - Usage Frequency
+
+| Fact | Source | Date |
+|------|--------|------|
+| Neighbors use property ~once per month (maybe 12x/year) | John | 2025-02-07 |
+
