@@ -60,6 +60,46 @@ The wife doesn't want to sell. But WHY?
 
 Most people have never been asked this. The answer might surprise you.
 
+---
+
+## 🎯 NEW INTEL: The Unfinished Dream
+
+### The Situation
+They have a **half-completed building** they started and never finished — and never will finish. They only use it as a Quincho (BBQ spot).
+
+### Why This Matters
+
+**Sunk Cost Fallacy:** The wife may be holding onto the *idea* of what it could have been, not what it actually is. That unfinished building represents:
+- A dream that didn't happen
+- Money already spent
+- "We'll finish it someday" (they won't)
+
+**The Reframe:**
+> "You're not losing your quincho spot — you're finally letting go of a project that's been hanging over you for years. And getting something better in return."
+
+### The Appreciation Angle
+
+15 years ago this area was desolate. Now the whole street is built up. Their property has appreciated significantly, but they're using it for... occasional BBQs.
+
+**The Pitch:**
+> "Your land is worth more now than ever. You could trade this for a FINISHED quincho somewhere better — maybe closer to home, maybe with a view, maybe actually completed."
+
+### Possible Offers
+
+1. **The Upgrade:** Find them a better quincho property elsewhere — finished, ready to use
+2. **The Cash-Out + New Dream:** They sell, get cash, we help them find/build their actual dream spot
+3. **The Club Membership:** Access to a social club with BBQ facilities = same experience, zero maintenance
+4. **Build Them a Quincho:** Offer to build a proper quincho on land they already own elsewhere
+
+### Questions to Answer
+
+- Do they have other property where a quincho could go?
+- What did they originally envision for that building?
+- How often do they actually use it? (occasional = leverage)
+- What would a "finished" version of their dream look like?
+
+---
+
 ## Key Principles
 
 1. **Don't negotiate against yourself** - Let her tell you what she wants
@@ -67,6 +107,7 @@ Most people have never been asked this. The answer might surprise you.
 3. **Sonia's pessimism might be useful** - Low expectations = no pressure
 4. **Football player is an ally** - Coordinate with him
 5. **Grace timeline is leverage** - But use carefully
+6. **The unfinished building is psychological weight** - Offer to lift it
 
 ## Next Steps
 
